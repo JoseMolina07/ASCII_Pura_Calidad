@@ -5,4 +5,4 @@
 <img width="697" height="56" alt="Captura de pantalla 2026-10-07 070708" src="https://github.com/user-attachments/assets/2be85b68-e5b2-4a4e-ab09-e7a95c83d7cd" />
 
 
-# GRACIAS POR LAS 10K REACCIONES ❤️
+# GRACIAS POR LAS 15K REACCIONES ❤️
